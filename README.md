@@ -1,4 +1,4 @@
-# pengalaman-belajar (Repository ini berdasarkan pengalamanku mengikuti program Dicoding)
+# Pengalaman Belajar (Repository ini berdasarkan pengalamanku mengikuti program Dicoding)
 
 Darimana kamu tahu tentang program ini?
 --
