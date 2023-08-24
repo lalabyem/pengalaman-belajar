@@ -6,7 +6,7 @@ Instagram! yeaa sosial media tersebut sangat membantuku dalam mencari informasi 
 
 Ceritakan pengalamanmu mengikuti program beasiswa for university dari Dicoding!
 --
-wah panjang banget nih kalo diceritain, aku singkat aja yaa. jadi pada hari senin, 21 Agustus 2023, aku membuka instagram dan muncul lah program beasiswa ini, dan abistu tanpa pikir panjang tanggal 22 aka besoknya (karna dah malem) aku daftar karena memang persyaratannya mudah banget. dan kebetulan lagi aku tidak ada kegiatan dikos, sembari nunggu dunia perkuliahan as anak semester 3 yang dimulai minggu depan (shiaappp!!), yeaaa aku daftar dong :) Berhubung aku menyukai bidang yang ada hubungannya sama analysis data dan pemograman, aku langsung excited dengan program ini. kapan lagi kegabutan ini menjadi sangat bermanfaat wkwk programnya gratis, dapet ilmu, dapet pengalman, dan dapet lagi sertifikat wawwww.
+wah panjang banget nih kalo diceritain, aku singkat aja yaa. jadi pada hari senin, 21 Agustus 2023, aku membuka instagram dan muncul lah program beasiswa ini, dan abistu tanpa pikir panjang tanggal 22 aka besoknya (karna dah malem) aku daftar karena memang persyaratannya mudah banget. dan kebetulan lagi aku tidak ada kegiatan dikos, sembari nunggu dunia perkuliahan as anak semester 3 yang dimulai minggu depan (shiaappp!!), yeaaa aku daftar dong :) Berhubung aku menyukai bidang yang ada hubungannya sama analysis data dan pemograman, aku langsung excited dengan program ini. kapan lagi kegabutan ini menjadi sangat bermanfaat wkwk programnya gratis, dapet ilmu, dapet pengalaman, dan dapet lagi sertifikat wawwww.
 
 Sampai mana progressmu saat ini?
 --
